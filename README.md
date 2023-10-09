@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Natevslawson
+- 👀 I’m interested in ... making video games
+- 🌱 I’m currently learning ...  how to make video games
+- 💞️ I’m looking to ... collaborate on making video games
+- 📫 How to reach me ... homing pigeon
